@@ -19,7 +19,7 @@
 
 - 📝 I regularly write articles on **[https://www.linkedin.com/in/firdaws-masrour-14a6482a2/](https://www.linkedin.com/in/firdaws-masrour-14a6482a2/)**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/166YSZE1el7d7ZwNpFMFj5dxVL814eKrK/view?usp=sharing](https://drive.google.com/file/d/166YSZE1el7d7ZwNpFMFj5dxVL814eKrK/view?usp=sharing)**
+- 📄 Know about my experiences **[https://drive.google.com/file/d/166YSZE1el7d7ZwNpFMFj5dxVL814eKrK/view?usp=sharing](https://drive.google.com/file/d/1-Mp6zQ4mdIVUlMTRCrJvBm_NscMAKREi/view?usp=sharing))**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
